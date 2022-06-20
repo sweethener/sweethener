@@ -1,7 +1,7 @@
 # ꧁sobre mim꧂
 - ✧oie! eu sou o **sweethener**
 - ✧eu estou em busca de pessoas que gostem da Ariana Grande
-- ✧eu gosto de aprender linguas novas e café gelado!
+- ✧eu gosto de assistir filmes e séries e jogar video games
 
 
 <!---
